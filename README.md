@@ -1,2 +1,2 @@
 # ilk
-i love movies,weed,coffee
+i love weed, movies, coffee...
